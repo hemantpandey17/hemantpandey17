@@ -18,7 +18,7 @@ A typical software nerd with a Steve job poster in my room and Elon Musk tshirt 
 
 - 😄 Pronouns: **He**/**Him**
 
-- ⚡ <a href="https://hemantpandey17.github.io"> <b>Portfolio</b></a>
+- I write weekly newsletter on "Career Growth In Tech". <a href="https://thehustlingengineer.substack.com"> <b>Subscribe Here</b></a>
 
 ## Let's Connect -
 
